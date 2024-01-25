@@ -1,0 +1,1 @@
+“Demain, dès l’aube, à l’heure où blanchit la campagne”, le célèbre vers de Victor Hugo pleurant la mort de sa fille Léopoldine, est sans aucun doute celui qui est revenu le plus souvent dans vos réponses. Vous avez même parfois évoqué le souvenir ému de l'enseignant·e qui vous l'a fait apprendre : 
